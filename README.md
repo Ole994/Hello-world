@@ -1,2 +1,2 @@
 
-I am a student called Ole, working to a developer
+I am a student called Ole, working to become a complete developer
